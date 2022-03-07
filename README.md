@@ -1,0 +1,1 @@
+# 12.D-2022-klases-kursa-darbs-programm-an-
